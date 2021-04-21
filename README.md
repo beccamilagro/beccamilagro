@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @beccamilagro
+- 👀 I’m interested in Educational design and the crossections of math programming and gaming.
